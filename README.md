@@ -1,1 +1,2 @@
 # VeAmacibasGIT
+Sveiki visiem! :)
